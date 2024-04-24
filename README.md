@@ -1,2 +1,2 @@
-this account is an alt account for school related business.
-and other stuff like that.
+. . . Not to be that sorta person, but who's this?? . . .
+i'm me
